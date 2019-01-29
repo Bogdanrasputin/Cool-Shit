@@ -1,3 +1,3 @@
 # Cool-Shit
 
-Cool Shit i made
+some cool shit i made
